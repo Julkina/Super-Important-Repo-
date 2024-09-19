@@ -1,7 +1,3 @@
 # Super-Important-Repo-
 Katsiaryna Stalbun
 272301
-my first change!!
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-nnnnnnnnnnnnnnnnnnnnnn
